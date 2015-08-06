@@ -1,18 +1,18 @@
 # Open Market and Community Festival at Perlata Park
 
-Every Saturday or Sunday.  Festival is all day long.  The focus of the event can change throughout the day:  farmers market in the morning, ; general/artisinal market afternoon and evening; entertainment, attractions and prepared foods throughout.  
+Every Saturday or Sunday.  Festival is all day long.  The focus of the event can change throughout the day:  farmers market in the morning, ; general/artisanal market afternoon and evening; entertainment, attractions and prepared foods throughout.  
 
 Featuring the many talented artists, performers, wise people and warriors of our own community.  As a market, the event brings much needed freshness and variety to our hood.  As a festival, it is a place of local commons, where neighbors connect and empower each other.
 
 ## Vendors
 
-Ideally, we attract all kinds of vendors:  local businesses; raw good and foodsi (a la farmers market); artisinal crafts;  general merchants.  If this is true, we may want to direct which go where when, and what the balance.  However, it may be best to let nature take it's course and see what happens.
+Ideally, we attract all kinds of vendors:  local businesses; raw foods and goods (a la farmers market); artisanal crafts;  general merchants.  If this is true, we may want to direct which groups go where and when, and what the balance is going to be.  However, it may be best to let nature take it's course and see what happens.
 
 ### capacity
 
-What is the comfortable capacity for vendors, leaving room for dance, play, and picnicing?
+What is the comfortable capacity for vendors, leaving room for dance, play, and picnicking?
 
-The festival lasting all day, we could expect vendors to come and go throughout, some only staying for morning and lunch, others arriving for evening activities. 
+With the festival lasting all day, we could expect vendors to come and go throughout, some only staying for morning and lunch, others arriving for evening activities. 
 
 ### food trucks
 
@@ -43,7 +43,7 @@ Stage acts will consist of:
 
 ## Attractions and services
 
-The event may provide some free services and activities, to attract more people.  It might be money well spent to pay people to provide these servis.   
+The event may provide some free services and activities, to attract more people.  It might be money well spent to pay people to provide these services.   
 
 Examples:
 * kids music jam and freakout
@@ -51,7 +51,7 @@ Examples:
 * supervised children's activities (movies, games, quiet space)
 * WIFI
 
-Idea: kids drums circle and music jam freakout, happens in the lower park, in order to purify that beuatiful area, and validate it's important to the community and the park staff.
+Idea: kids drums circle and music jam freakout, happens in the lower park, in order to purify that beuatiful area, and validate that it's important to the community and the park staff.
 
 ## Promotion & Networking
 
@@ -61,9 +61,9 @@ TO DO:  take pictures of park from top of Peralta House.
 
 ## Donations
 
-What kind of services or good do we need donated?
+What kind of services or goods do we need donated?
 
-* large tent for shade, seating and picnicing 
+* large tent for shade, seating and picnicking 
 * sound system equptment (mixers, amps, monitors, and musical instruments)
 
 ## Organization
@@ -74,8 +74,8 @@ List of all people making decisions and being answerable:
 * TO DO
 
 From that list:
-* Who are primary contacts for vendors, for performers, for donations and volunteers, for personel and event coordination?
-* Who will direct promotion, graphic designs, sound and stage, market space and general equpiment? 
+* Who are primary contacts for vendors, for performers, for donations and volunteers, for personnel and event coordination?
+* Who will direct promotion, graphic designs, sound and stage, market space and general equipment? 
 
 ### information
 
